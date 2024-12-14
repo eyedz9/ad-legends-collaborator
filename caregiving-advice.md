@@ -1,3 +1,5 @@
-# The Heart of Caregiving: Compassionate Support for Loved Ones
+# The Heart of Caregiving: A Guide to Compassionate Support
 
-[Full narrative content about caregiving strategies and support...]
+Eleanor Martinez spent twenty years caring for her mother with Alzheimer's. "I learned something new every day," she shares. "Caregiving is a journey of both challenges and profound love."
+
+[Complete narrative content about caregiving...]
