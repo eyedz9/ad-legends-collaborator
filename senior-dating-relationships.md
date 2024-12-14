@@ -1,3 +1,3 @@
-# Love Has No Age Limit: Navigating Dating and Relationships in Your Golden Years
+# Love and Connection: Navigating Relationships in Your Golden Years
 
-[Complete narrative content about dating and relationships...]
+[Full narrative content about senior dating and relationships...]

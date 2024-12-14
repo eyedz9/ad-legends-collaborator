@@ -1,3 +1,3 @@
 # Embracing the Digital Age: A Senior's Journey Through Modern Technology
 
-[Complete narrative content about technology...]
+[Full narrative content about technology adoption and digital literacy...]

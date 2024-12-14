@@ -1,3 +1,3 @@
-# Making a Difference: Finding Purpose Through Giving Back
+# Making a Difference: The Rewards of Volunteering
 
-[Complete narrative content about volunteering...]
+[Full narrative content about volunteer opportunities and community service...]
